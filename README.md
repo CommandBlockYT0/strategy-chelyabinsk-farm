@@ -1,0 +1,1 @@
+# strategy-chelyabinsk-farm
